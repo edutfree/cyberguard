@@ -4,7 +4,9 @@
 
 ## CyberGuard介绍
 
-CyberGuard 成立于2023年，老牌稳定， Shadowsocks节点，线路有公网中转、IPLC 和 IEPL 专线，节点覆盖大陆常用地区。CyberGuard 机场（CG 加速器）当前正在进行优惠促销活动，欲购从速。另外，CyberGuard 机场还有不限时长流量包提供，以及支持企业定制功能。
+CyberGuard 成立于2023年，老牌稳定， Shadowsocks节点，线路有公网中转、IPLC 和 IEPL 专线，节点覆盖大陆常用热门地区。CyberGuard （CG 加速器）目前正在进行优惠促销活动，欲购从速。
+
+另外，CyberGuard 机场还有不限时长流量包提供。
 
 ## CyberGuard优惠码
 
