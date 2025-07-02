@@ -1,4 +1,4 @@
-# CyberGuard官网地址
+# CyberGuard官网地址 + 最新优惠码
 
 最新地址：[cyberguard.best](https://www.cyberguard.best/#/register?code=jCkDS1na)
 
@@ -6,17 +6,17 @@
 
 CyberGuard 成立于2023年，老牌稳定， Shadowsocks节点，线路有公网中转、IPLC 和 IEPL 专线，节点覆盖大陆常用热门地区。CyberGuard （CG 加速器）目前正在进行优惠促销活动，欲购从速。
 
-另外，CyberGuard 机场还有不限时长流量包提供。
+另外，CyberGuard 还有不限时长流量包提供。
 
 ## CyberGuard优惠码
 
-4月特惠来袭，限时超值折扣！
+7月特惠来袭，限时超值折扣！
 
-季付及以上套餐：享 85折优惠，使用优惠码：[APRIL15](https://www.cyberguard.best/#/register?code=jCkDS1na)
+季付及以上套餐：享9折优惠，使用优惠码：[JULY90](https://www.cyberguard.best/#/register?code=jCkDS1na)
 
-年付及以上套餐：享 8折优惠，使用优惠码：[APRIL20](https://www.cyberguard.best/#/register?code=jCkDS1na)
+年付及以上套餐：享75折优惠，使用优惠码：[JULY75](https://www.cyberguard.best/#/register?code=jCkDS1na)
 
-不限时流量包：享 8折优惠，使用优惠码：[APRILDATA](https://www.cyberguard.best/#/register?code=jCkDS1na)
+不限时流量包：享9折优惠，使用优惠码：[PACK90](https://www.cyberguard.best/#/register?code=jCkDS1na)
 
 ## CyberGuard价格
 
