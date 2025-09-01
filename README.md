@@ -10,13 +10,15 @@ CyberGuard 成立于2023年，老牌稳定， Shadowsocks节点，线路有公�
 
 ## CyberGuard优惠码
 
-7月特惠来袭，限时超值折扣！
+9月優惠方案：
 
-季付及以上套餐：享9折优惠，使用优惠码：[JULY90](https://www.cyberguard.best/#/register?code=jCkDS1na)
+🔹 月付 ➡️ 加送 50GB 流量
 
-年付及以上套餐：享75折优惠，使用优惠码：[JULY75](https://www.cyberguard.best/#/register?code=jCkDS1na)
+🔶 季/半年付 ➡️ 85折 | 優惠碼：[SEP85](https://www.cyberguard.best/#/register?code=jCkDS1na)
 
-不限时流量包：享9折优惠，使用优惠码：[PACK90](https://www.cyberguard.best/#/register?code=jCkDS1na)
+🔷 年付 ➡️ 75折 | 優惠碼：[SEP75](https://www.cyberguard.best/#/register?code=jCkDS1na)
+
+📦 流量包 ➡️ 額外贈送 20% Bonus 流量
 
 ## CyberGuard价格
 
